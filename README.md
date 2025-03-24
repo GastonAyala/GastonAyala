@@ -26,7 +26,7 @@ Busco un entorno donde podamos crear soluciones innovadoras que generen un impac
 
 ## 📫 Conéctame
 
-- [LinkedIn](linkedin.com/in/gastonayalgimenez)
+- [LinkedIn](https://www.linkedin.com/in/gastonayalgimenez)
 - [Correo Electrónico](mailto:gastonayalagimenez@gmail.com)
 
 ¡Gracias por visitar mi perfil! Estoy abierto a colaboraciones y nuevas oportunidades.
